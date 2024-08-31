@@ -21,7 +21,7 @@
 
 【优惠活动】
 
-飞机云8月特惠包年7折优惠代码：[F9988](https://xuv.cc/out/feiji)
+飞机云8月特惠包年7折优惠代码：[FJ888](https://xuv.cc/out/feiji)
 
 
 ## 飞机云特色
