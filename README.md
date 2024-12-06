@@ -4,9 +4,9 @@
 
 永久官网：[feijicloud.com](https://xuv.cc/out/feiji)
 
-地址1：[https://feiji89.com](https://feiji89.com/auth/register?code=Mw7q)
+地址1：[https://feiji79.com](https://feiji79.com/auth/register?code=Mw7q)
 
-地址2：[https://feiji27.com](https://feiji27.com/auth/register?code=Mw7q)
+地址2：[https://feiji017.xyz](https://feiji017.xyz/auth/register?code=Mw7q)
 
 
 ## 简介
@@ -21,7 +21,7 @@
 
 【优惠活动】
 
-飞机云8月特惠包年7折优惠代码：[FJ888](https://xuv.cc/out/feiji)
+飞机云年终特惠包年7折优惠代码：[FFF10](https://xuv.cc/out/feiji)
 
 
 ## 飞机云特色
