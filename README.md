@@ -21,7 +21,7 @@
 
 【优惠活动】
 
-飞机云2025新年特惠包年7折优惠代码：[FFF10](https://xuv.cc/out/feiji)
+飞机云2025年特惠包年7折优惠代码：[FJ555](https://xuv.cc/out/feiji)
 
 
 ## 飞机云特色
