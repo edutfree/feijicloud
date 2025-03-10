@@ -4,9 +4,9 @@
 
 永久官网：[feijicloud.com](https://xuv.cc/out/feiji)
 
-地址1：[https://feiji79.com](https://feiji79.com/auth/register?code=Mw7q)
+地址1：[https://feijiyun11.xyz](https://feijiyun11.xyz/auth/register?code=Mw7q)
 
-地址2：[https://feiji017.xyz](https://feiji017.xyz/auth/register?code=Mw7q)
+地址2：[https://feijiyun88.xyz](https://feijiyun88.xyz/auth/register?code=Mw7q)
 
 
 ## 简介
